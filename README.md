@@ -7,7 +7,7 @@ alakazam is my favourite pokemon cause of this card
 
 <img width="245" height="342" alt="image" src="https://github.com/user-attachments/assets/08c2f776-4242-467f-a9f8-eb8d88daa700" />
 
-ok so first of all its really pretty but also ! the background of the ard reminds me of the first glass beach album
+ok so first of all its really pretty but also ! the background of the card reminds me of the first glass beach album
 
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/0421955b-899b-4828-b191-3a3124b3543a" />
 
