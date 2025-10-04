@@ -1,4 +1,4 @@
-# 1-sucker-punch-im-dead
+# 1-sucker-punch-and-im-dead
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/b32c9f72-585d-4097-8781-b75a86efb352" />
 
