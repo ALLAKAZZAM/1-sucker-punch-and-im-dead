@@ -2,69 +2,74 @@
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/b32c9f72-585d-4097-8781-b75a86efb352" />
 
+Do I need a reason to wake up lonely all the time?
 
-Ronnette, my dear, don't ever disappear
+I don't want to see you, but I don't know where to hide
 
-Do what you want as long as you stay here
+Some mistakes should not be made
 
-I need you now, I love you so much, more than you could know
+Like opening your heart
 
-The Christmas kids were nothing but a gift
+If your heart's upon your sleeve
 
-And love is a tower where all of us can live
+Then amputate the arm
 
-You'll change your name or change your mind
+Swim in circles, water fills your lungs
 
-And leave this fucked up place behind
+And why should anyone else offer their help?
 
-But I'll know, I'll know
+I mean, just look at the way you never took care of yourself
 
-I'll know, I'll know
+I'll be numb, but I'll be free
 
-I'll know, I'll know
+My friends will keep me honest
 
-I'll know, I'll know
+My friends will keep me honest
 
-Appearing unsightly with devils inside me
+You won't mean a thing to me
 
-If you ever try to leave me, I'll find you, Ronnie
+Now that's what I call progress
 
-If you ever try to leave me, I'll find you, Ronnie
+That's what I call progress
 
-If you ever try to leave me, I'll find you, Ronnie
+That's what I call progress
 
-If you ever try to leave me, I'll find you, Ronnie
+Is this what you mean when you say that you're making it, easier,
 
-I'm leaving, Phil, I'm leaving now
+easier?
 
-I'm going to escape, but you won't know how
+Now you want the feelings back
 
-Or where to find me when I'm gone
+Now that you're an actor
 
-I'll drink myself to death inside this prison cell
+And phantom pains cannot convince
 
-This prison cell
+Or captivate an audience
 
-So get me out of here
+Your monologue was such a mess,
 
-Get me out of here
+A reprehensible pretense
 
-Get me out of here
+Guilt's a modus operandi
 
-Get me out of here
+You thought that **hope** was so profound
 
-You'll change your name or change your mind
+What if true love doesn't wait
 
-And leave this fucked up place behind
+for everyone to come around?
 
-But I'll know, I'll know
+Everyone to come around
 
-I'll know, I'll know
+Everyone to come around
 
-I'll know, I'll know
+Everyone to come around
 
-I'll know, I'll know
+Everyone to come around
+
+Everyone to come around
+
+Everyone to come around
+
+Everyone to come around
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/9eb3943a-3fb5-4009-872b-2ce32eb890cc" />
-
-ROAR FANS BMF PLEASE...... I DONT JUST LISTEN TO CHRISTMAS KIDS & I CANT HANDLE CHANGE I LOVE ALL HIS MUSIC..... my favourite is demon ghost cave atm <3
